@@ -1,1 +1,2 @@
 # NASCARS_World
+# Flatbush Zombies is an American hip hop group from the Flatbush section of Brooklyn, New York City, formed in 2010. The group is composed of rappers Meechy Darko, Zombie Juice and Erick "Arc" Elliott, the latter of which also serves as their regular producer. They are part of East Coast hip hop movement known as "Beast Coast", that was spearheaded by fellow Brooklyn-based rappers Joey Bada$$ and the late Capital Steez, along with their respective hip hop group Pro Era.
